@@ -1,7 +1,7 @@
 # Resume
 1. **First name:** Pavel **Second name:** Saikou
 
-2. **Email:** pavsaikov@gmail.com **Mobile phone** +375333502749(Telegram) 
+2. **Email:** pavsaikov@gmail.com **Mobile phone** +375333502749(Telegram) VK:[Link](https://vk.com/pasha_cosmos)
 
 3. I'm calm, communicable and responsible person. I'm really interested in this branch of programming.
 
